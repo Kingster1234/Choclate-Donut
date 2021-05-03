@@ -1,0 +1,3 @@
+Moist and fluffy donuts that are baked, not fried, and full of chocolate. Covered in a thick chocolate glaze, these are perfect for any chocoholic who wants a chocolate version of this classic treat. 
+
+Donuts are one of my favorite desserts. I love the fun shape of donuts and the colorful sprinkles or creamy glaze that covers the top. These chocolate glazed donuts are baked instead of fried, giving them a moist, cake-like texture and are a healthier alternative to a classic fried donut
